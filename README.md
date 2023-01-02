@@ -1,6 +1,4 @@
-opkomende nederlandse fivem servers! 
-roerveen(naam word nog verandert)
-https://discord.gg/DhJzJQKsZc
+opkomende nederlandse fivem server! 
 
 oosterdijk RP
 https://discord.gg/DQKnDMA4zW
